@@ -40,7 +40,7 @@ fangzy: https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX
 hvick225: https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar
 
 
-his twitter skin (it was the best i could do sorry): https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file
+his twitter skin (thank you amity for circles and numbers): https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file
 
 
 the skin he used to fc that map that flyingtuna fced with 3 mod relax remake (thanks alot u/Wonderer0103)
@@ -50,5 +50,8 @@ https://m.put.re/aLj19dJa.rar
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
+
+
+
 
 
