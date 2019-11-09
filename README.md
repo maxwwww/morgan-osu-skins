@@ -40,7 +40,7 @@ fangzy: https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX
 hvick225: https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar
 
 
-his twitter skin (it was the best i could do sorry): https://www.mediafire.com/file/eqf71t7vpx5y010/-_morgan_twitter_skin_remake_by_venomthor2.osk/file
+his twitter skin (it was the best i could do sorry): https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file
 
 
 the skin he used to fc that map that flyingtuna fced with 3 mod relax remake (thanks alot u/Wonderer0103)
