@@ -43,6 +43,10 @@ hvick225: https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.r
 his twitter skin (it was the best i could do sorry): https://www.mediafire.com/file/eqf71t7vpx5y010/-_morgan_twitter_skin_remake_by_venomthor2.osk/file
 
 
+the skin he used to fc that map that flyingtuna fced with 3 mod relax remake (thanks alot u/Wonderer0103)
+https://m.put.re/aLj19dJa.rar
+
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
