@@ -1,11 +1,11 @@
 # morgan-osu-skins
 akia on gatari osu skins poggers
 
-# [- + morgan red](https://puu.sh/ECZ3m/cdde12c5e5.osk)
+# [- + morgan red](https://morgan.s-ul.eu/hHfDd2fD)
 ![](https://osu.ppy.sh/ss/14096632/2672)
 
-# [- + morgan gray](https://puu.sh/ECZ3o/3a61a2a212.osk)
-![](hhttps://osu.ppy.sh/ss/14096660/e821)
+# [- + morgan gray](https://morgan.s-ul.eu/UJzmIsLw)
+![](https://osu.ppy.sh/ss/14096660/e821)
 
 skin with rustbell circles: http://www.mediafire.com/file/wv9qpmknnpy2gmj/imey.osk/file
 
