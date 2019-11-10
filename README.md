@@ -4,6 +4,9 @@ akia on gatari osu skins poggers
 # [- + morgan red](https://puu.sh/ECYVz/4e4b7d7444.osk)
 ![](https://osu.ppy.sh/ss/14096632/2672)
 
+# [- + morgan gray](https://puu.sh/ECYVz/4e4b7d7444.osk)
+![](hhttps://osu.ppy.sh/ss/14096660/e821)
+
 skin with rustbell circles: http://www.mediafire.com/file/wv9qpmknnpy2gmj/imey.osk/file
 
 
