@@ -75,7 +75,7 @@ https://m.put.re/aLj19dJa.rar
 
 # [kioku x something something](https://s.put.re/1e3q5GY3.osk)
 
-# [love your enemies](https://www.mediafire.com/file/mb0n0xc9x5t6vfz/morgan_remake.osk/file)
+# [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
 
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
