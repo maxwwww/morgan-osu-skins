@@ -57,6 +57,8 @@ im continuiing the rest of the list later cuz he has lots of fucking skins
 
 also please unblock me on twitter morgan 
 
+my discord: venomthor2#7999
+
 
 
 
