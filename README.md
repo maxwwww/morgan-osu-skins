@@ -74,6 +74,10 @@ https://m.put.re/aLj19dJa.rar
 # [sakura no zenya](https://s.put.re/b2m9fvGa.osk)
 
 # [kioku x something something](https://s.put.re/1e3q5GY3.osk)
+
+# [love your enemies](https://www.mediafire.com/file/mb0n0xc9x5t6vfz/morgan_remake.osk/file)
+
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
