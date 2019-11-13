@@ -22,7 +22,7 @@ kune skin: http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file
 mayoler:https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk 
 
 
-uberlagen: https://skins.osuck.net/index.php?newsid=214 (ADD YAONG PINK CURSOR) 
+# [uberlangen](https://s.put.re/VtM2LaJS.osk)
 
 
 rafis skin:https://skins.osuck.net/index.php?newsid=164
@@ -53,12 +53,33 @@ the skin he used to fc that map that flyingtuna fced with 3 mod relax remake (th
 https://m.put.re/aLj19dJa.rar
 
 
+# [euphorium liveplay](https://s.put.re/LfAYukHg.osk) 
+
+
+# [fighting gold skin](https://s.put.re/7qs4bMvB.osk )
+
+# [poppin shower](https://s.put.re/L89DGMeC.osk ) 
+
+
+# [nanario](https://s.put.re/g6ft4awW.osk)
+
+# [fyree](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)
+
+# [love bbb](https://cdn.discordapp.com/attachments/644258437735251988/644258866573344769/404_Skin_Not_Found.osk)
+
+# [outbreak](https://s.put.re/DRaUjY99.osk)
+
+# [pallete gamma liveplay](https://s.put.re/g3kfEP32.osk)
+
+# [sakura no zenya](https://s.put.re/b2m9fvGa.osk)
+
+# [kioku x something something](https://s.put.re/1e3q5GY3.osk)
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
 
 my discord: venomthor2#7999
-
+thanks alot u/Wonderer0103 for most of the skins i recently added thank you alot 
 
 
 
