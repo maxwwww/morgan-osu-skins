@@ -7,7 +7,7 @@ akia on gatari osu skins poggers
 # [- + morgan gray](https://morgan.s-ul.eu/UJzmIsLw)
 ![](https://osu.ppy.sh/ss/14096660/e821)
 
-# [morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy)or [fyree](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)
+# [morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)
 ![](https://osu.ppy.sh/ss/14110244/ecca)
 
 
