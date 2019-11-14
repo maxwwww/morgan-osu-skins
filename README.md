@@ -10,8 +10,8 @@ akia on gatari osu skins poggers
 # [morgan but fyre](https://morgan.s-ul.eu/LyX39Wqy) or [fyree (orange cursor)](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)
 ![](https://osu.ppy.sh/ss/14110244/ecca)
 
-# [Reira+Neil morgan] thank u wandarerzeroonezerothree (thanks alot u/Wonderer0103) (https://morgan.s-ul.eu/v0UFDMSu)
-![](hhttps://osu.ppy.sh/ss/14110711/f410)
+# [Reira+Neil morgan] (https://morgan.s-ul.eu/v0UFDMSu) thank u wandarerzeroonezerothree (thanks alot u/Wonderer0103) 
+![](https://osu.ppy.sh/ss/14110711/f410)
 
 
 # [skin with rustbell circles](http://www.mediafire.com/file/wv9qpmknnpy2gmj/imey.osk/file)
