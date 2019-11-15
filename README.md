@@ -15,6 +15,7 @@ akia on gatari osu skins poggers
 
 
 # [skin with rustbell circles](http://www.mediafire.com/file/wv9qpmknnpy2gmj/imey.osk/file)
+![](https://i.imgur.com/0DvjwNz.png)
 
 
 skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%21_%23_%21_%23_%21_%23_%21_morgna_osu_private_skin.osk/file
