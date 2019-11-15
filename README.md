@@ -34,7 +34,8 @@ skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%2
 # [uberlangen](https://s.put.re/VtM2LaJS.osk)
 
 
-rafis skin:https://skins.osuck.net/index.php?newsid=164
+# [rafis elohere](https://skins.osuck.net/index.php?newsid=164)
+![](https://i.imgur.com/CodCQkm.png)
 
 
 # [smh](https://s.put.re/6NeeBXHD.osk)
