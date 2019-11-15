@@ -1,6 +1,6 @@
 # morgan-osu-skins
 akia on gatari osu skins poggers
-please keep in mind that some of them are remakes
+# please keep in mind that some of them are remakes
 
 # [- + morgan red](https://morgan.s-ul.eu/hHfDd2fD)
 ![](https://osu.ppy.sh/ss/14096632/2672)
