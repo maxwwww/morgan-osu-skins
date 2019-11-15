@@ -83,10 +83,12 @@ akia on gatari osu skins poggers
 
 
 # [nanario](https://s.put.re/g6ft4awW.osk)
+![](https://i.imgur.com/ZQOskyr.png)
 
-# [fyree](https://cdn.discordapp.com/attachments/644258437735251988/644259799852122122/fyree.osk)
 
 # [love bbb](https://cdn.discordapp.com/attachments/644258437735251988/644258866573344769/404_Skin_Not_Found.osk)
+![](https://i.imgur.com/SyEqGzb.png)
+
 
 # [outbreak](https://s.put.re/DRaUjY99.osk)
 
