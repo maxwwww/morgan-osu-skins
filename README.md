@@ -41,7 +41,8 @@ rafis skin:https://skins.osuck.net/index.php?newsid=164
 ![](https://i.imgur.com/OQAiSos.png)
 
 
-his green skin: http://puu.sh/DFB0K/faeb561091.osk
+# [green skin](http://puu.sh/DFB0K/faeb561091.osk)
+![](https://i.imgur.com/arIB17V.png)
 
 
 # [-dddddd- ryuk](http://puu.sh/DD1aK/53a5aa7cc4.osk)
