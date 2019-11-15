@@ -75,6 +75,8 @@ akia on gatari osu skins poggers
 
 
 # [fighting gold skin](https://s.put.re/7qs4bMvB.osk )
+![](https://i.imgur.com/0BciGen.png)
+
 
 # [poppin shower](https://s.put.re/L89DGMeC.osk ) 
 
