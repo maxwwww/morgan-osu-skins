@@ -32,6 +32,7 @@ skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%2
 
 
 # [uberlangen](https://s.put.re/VtM2LaJS.osk)
+![](https://i.imgur.com/XXXMtHu.png)
 
 
 # [rafis elohere](https://skins.osuck.net/index.php?newsid=164)
@@ -52,7 +53,6 @@ skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%2
 
 # [blue skin](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://i.imgur.com/QjujhjH.png)
-
 
 
 fangzy: https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX
