@@ -1,5 +1,6 @@
 # morgan-osu-skins
 akia on gatari osu skins poggers
+please keep in mind that some of them are remakes
 
 # [- + morgan red](https://morgan.s-ul.eu/hHfDd2fD)
 ![](https://osu.ppy.sh/ss/14096632/2672)
@@ -107,8 +108,11 @@ akia on gatari osu skins poggers
 
 
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
+![](https://i.imgur.com/MgLVz9V.png)
+
 
 # [versace summer](https://s.put.re/asAbCDT9.osk )
+![](https://i.imgur.com/iay8wOm.png)
 
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
