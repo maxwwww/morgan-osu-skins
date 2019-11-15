@@ -91,6 +91,8 @@ akia on gatari osu skins poggers
 
 
 # [outbreak](https://s.put.re/DRaUjY99.osk)
+![](https://i.imgur.com/bOnfM6c.png)
+
 
 # [pallete gamma liveplay](https://s.put.re/g3kfEP32.osk)
 
