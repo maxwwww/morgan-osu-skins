@@ -84,6 +84,8 @@ https://m.put.re/aLj19dJa.rar
 
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
 
+# [versace summer](https://s.put.re/asAbCDT9.osk )
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
