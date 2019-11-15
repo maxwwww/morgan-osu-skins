@@ -45,6 +45,8 @@ his green skin: http://puu.sh/DFB0K/faeb561091.osk
 
 
 blue skin : https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0
+![](https://i.imgur.com/QjujhjH.png)
+
 
 
 fangzy: https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX
