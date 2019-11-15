@@ -42,6 +42,7 @@ his green skin: http://puu.sh/DFB0K/faeb561091.osk
 
 
 -dddddd- ryuk : http://puu.sh/DD1aK/53a5aa7cc4.osk
+![](https://i.imgur.com/j4uWDkX.png)
 
 
 blue skin : https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0
