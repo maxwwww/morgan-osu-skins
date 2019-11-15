@@ -35,7 +35,8 @@ skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%2
 rafis skin:https://skins.osuck.net/index.php?newsid=164
 
 
-dunois pink numbers skin: https://s.put.re/6NeeBXHD.osk 
+# [smh](https://s.put.re/6NeeBXHD.osk)
+![](https://i.imgur.com/OQAiSos.png)
 
 
 his green skin: http://puu.sh/DFB0K/faeb561091.osk
