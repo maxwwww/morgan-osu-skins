@@ -62,15 +62,12 @@ akia on gatari osu skins poggers
 ![](https://i.imgur.com/BKfgTya.png)
 
 
-hvick225: https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar
+# [hvick225](https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar)
+![](https://i.imgur.com/IAVvpYg.png)
 
 
 # [his twitter skin (thank you amity for circles and numbers)](https://www.mediafire.com/file/9g3y0kcf88ue85h/-_morgan_twitter_skin_remake_by_venomthor2_updated.osk/file)
 ![](https://i.imgur.com/knVA5Em.png)
-
-
-the skin he used to fc that map that flyingtuna fced with 3 mod relax remake (thanks alot u/Wonderer0103)
-https://m.put.re/aLj19dJa.rar
 
 
 # [euphorium liveplay](https://s.put.re/LfAYukHg.osk) 
