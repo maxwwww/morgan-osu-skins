@@ -71,6 +71,7 @@ akia on gatari osu skins poggers
 
 
 # [euphorium liveplay](https://s.put.re/LfAYukHg.osk) 
+![](https://i.imgur.com/a3CV1yB.png)
 
 
 # [fighting gold skin](https://s.put.re/7qs4bMvB.osk )
