@@ -19,11 +19,11 @@ akia on gatari osu skins poggers
 
 skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%21_%23_%21_%23_%21_%23_%21_morgna_osu_private_skin.osk/file
 
+# [skin that he published](https://s.put.re/XVcPLRW.osk)
 
-skin that he published: https://s.put.re/XVcPLRW.osk 
 
+# [kune skin](http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file)
 
-kune skin: http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file
 
 
 # [mayoler](https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk)
