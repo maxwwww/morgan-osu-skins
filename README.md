@@ -24,10 +24,11 @@ skin that i remaked: https://www.mediafire.com/file/vmtpg4razibc1sd/-_%21_%23_%2
 
 
 # [kune skin](http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file)
-
+![](https://i.imgur.com/iwvuZos.png)
 
 
 # [mayoler](https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk)
+![](https://i.imgur.com/aba5KjL.png)
 
 
 # [uberlangen](https://s.put.re/VtM2LaJS.osk)
