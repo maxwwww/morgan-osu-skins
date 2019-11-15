@@ -58,7 +58,8 @@ akia on gatari osu skins poggers
 ![](https://i.imgur.com/QjujhjH.png)
 
 
-fangzy: https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX
+# [fangzy](https://drive.google.com/open?id=12pytaT8U290gVwzvZXaSvJnLPrS0RYfX)
+![](https://i.imgur.com/BKfgTya.png)
 
 
 hvick225: https://circle-people.com/wp-content/Skins/hvick225/hvick-2017-08-10.rar
