@@ -95,10 +95,16 @@ akia on gatari osu skins poggers
 
 
 # [pallete gamma liveplay](https://s.put.re/g3kfEP32.osk)
+![](https://i.imgur.com/YOFKy1w.png)
+
 
 # [sakura no zenya](https://s.put.re/b2m9fvGa.osk)
+![](https://i.imgur.com/gre8hUF.png)
+
 
 # [kioku x something something](https://s.put.re/1e3q5GY3.osk)
+![](https://i.imgur.com/QVZ7g6S.png)
+
 
 # [love your enemies](https://www.mediafire.com/file/1yvl862rv3s2r0j/morgan_remake_updated.osk/file)
 
