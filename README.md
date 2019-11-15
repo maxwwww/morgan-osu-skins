@@ -26,7 +26,7 @@ skin that he published: https://s.put.re/XVcPLRW.osk
 kune skin: http://www.mediafire.com/file/7ffd7h7opdgxpeg/kune259_160601.osk/file
 
 
-mayoler:https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk 
+# [mayoler](https://circle-people.com/wp-content/Skins/Mayoler/Mayoler-2017-08-10.osk)
 
 
 # [uberlangen](https://s.put.re/VtM2LaJS.osk)
