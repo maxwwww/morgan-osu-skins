@@ -80,7 +80,7 @@ akia on gatari osu skins poggers
 # [pallete gamma liveplay](https://s.put.re/g3kfEP32.osk)
 ![](https://i.imgur.com/YOFKy1w.png)
 
-# [sakura no zenya](https://s.put.re/b2m9fvGa.osk)
+# [sakura no zenya](https://drive.google.com/file/d/1dKTqdCEFZYwfEozV0ztU0Mvf3kjR_Kc-/view)
 ![](https://i.imgur.com/gre8hUF.png)
 
 # [kioku x something something](https://s.put.re/1e3q5GY3.osk)
