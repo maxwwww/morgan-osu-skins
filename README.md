@@ -92,7 +92,7 @@ akia on gatari osu skins poggers
 # [versace summer](https://s.put.re/asAbCDT9.osk )
 ![](https://i.imgur.com/iay8wOm.png)
 
-# [versace summer but not remake](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
+# [versace summer but not remake](https://www.mediafire.com/file/sfse914qnw2ifq9/-+_morgan+tko_blue.osk/file)
 ![](https://i.imgur.com/bW1k4PT.png)
 
 # [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
