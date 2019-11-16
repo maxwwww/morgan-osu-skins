@@ -95,6 +95,9 @@ akia on gatari osu skins poggers
 # [versace summer but not remake](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
 ![](https://i.imgur.com/bW1k4PT.png)
 
+# [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
+![](https://osu.ppy.sh/ss/14118234/414e)
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
