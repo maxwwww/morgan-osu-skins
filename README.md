@@ -93,6 +93,7 @@ akia on gatari osu skins poggers
 ![](https://i.imgur.com/iay8wOm.png)
 
 # [versace summer but not remake](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
+![](https://i.imgur.com/bW1k4PT.png)
 
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
