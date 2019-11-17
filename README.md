@@ -98,6 +98,8 @@ akia on gatari osu skins poggers
 # [another twitter skin](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14118234/414e)
 
+# [i will add everything later](https://s.put.re/P8YH9jT6.osk)
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
