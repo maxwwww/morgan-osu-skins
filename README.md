@@ -99,6 +99,7 @@ akia on gatari osu skins poggers
 ![](https://osu.ppy.sh/ss/14118234/414e)
 
 # [i will add everything later](https://s.put.re/P8YH9jT6.osk)
+![](https://i.imgur.com/o601t3O.png)
 
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
