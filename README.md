@@ -101,6 +101,8 @@ akia on gatari osu skins poggers
 # [one in a billion](https://s.put.re/P8YH9jT6.osk)
 ![](https://i.imgur.com/o601t3O.png)
 
+# [choir jail pls wonderer or snowy add screenshots im at school rn](https://circle-people.com/wp-content/Skins/hvick225/hvick225%202016-12-3%20--Dare.osk)
+
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
