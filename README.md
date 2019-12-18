@@ -110,6 +110,8 @@ akia on gatari osu skins poggers
 # [humanly](https://s.put.re/P68stuiJ.osk)
 ![](https://osu.ppy.sh/ss/14249615/b5cb)
 
+# [spark of the archon](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk) 
+![](https://imgur.com/a/2D3X0WU)
 
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
