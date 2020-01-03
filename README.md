@@ -116,6 +116,9 @@ akia on gatari osu skins poggers
 # [sendan life](https://s.put.re/eJo8fNJz.osk)
 ![](https://i.imgur.com/n8fQOWB.png)
 
+# [twitter skin](https://drive.google.com/open?id=1ORmpBBZ8Oa3vWAdJGaXvaKKIS9hTz1fZ)
+![](
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
