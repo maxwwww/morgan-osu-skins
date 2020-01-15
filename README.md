@@ -119,6 +119,9 @@ akia on gatari osu skins poggers
 # [twitter skin](https://drive.google.com/open?id=1ORmpBBZ8Oa3vWAdJGaXvaKKIS9hTz1fZ)
 ![](
 
+# [bird sprite](https://t.co/GaUeWIj04q?amp=1)
+![](https://osu.ppy.sh/ss/14370478/24b0) 
+
 im continuiing the rest of the list later cuz he has lots of fucking skins 
 
 also please unblock me on twitter morgan 
